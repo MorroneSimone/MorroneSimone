@@ -30,6 +30,7 @@ Ecco alcune delle tecnologie che sto imparando:
 Se vuoi entrare in contatto con me, puoi trovarmi qui:
 
 - **Email**: simonemorrone21@gmail.com
+- **Student-Email**: s.morrone4@campus.unimib.it
 
 ## 🙌 Grazie per la visita!
 
